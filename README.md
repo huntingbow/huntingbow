@@ -8,7 +8,3 @@
 </p>
   </a>
 </p>
-<p align="center">
-  
-⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀  ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀[新book](https://sadeness.atabook.org/)
-<p align="center">
