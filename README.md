@@ -1,4 +1,4 @@
-󠀠󠀠󠀠󠀠      ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ![](https://komarev.com/ghpvc/?username=huntingbow&color=8D97AF&label=walkers󠀠󠀠󠀠󠁜󠁜󠁜⠀killed)
+󠀠󠀠󠀠󠀠      ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀⠀⠀⠀ ⠀ ⠀ ⠀⠀⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀  ⠀ ⠀ ![](https://komarev.com/ghpvc/?username=huntingbow&color=8D97AF&label=♡)
 <p align="center"> 
   <img src="https://i.postimg.cc/rwfdVCXs/Untitled307-20260711013509-(1).webp">
   <p align="center">
